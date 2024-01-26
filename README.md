@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @manos19
-- 💞️ I’m looking to collaborate on any project just to get experience and build on it.
 - 📫 How to reach me: my email is manosrd199@gmail.com
 
 <!---
